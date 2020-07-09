@@ -1,7 +1,7 @@
-### Hi there 😅☕
-🎓 Master of Science and Engineering in the GSCT, KAIST.
-🎨 Bachelor of Fine Arts in Printmaking, Hongik Univ.
-
+## Hi there! 👋
+### 🎓 Master of Science and Engineering in the GSCT, KAIST.
+### 🎨 Bachelor of Fine Arts in Printmaking, Hongik Univ.
+😂<sub>😂<sub>😂</sub>😂</sub>😂<sup>😂<sup>😂</sup>😂</sup>😂<sub>😂<sub>😂</sub>😂</sub>😂<sup>😂<sup>😂</sup>😂</sup>😂<sub>😂<sub>😂</sub>😂</sub>😂<sup>😂<sup>😂</sup>😂</sup>😂<sub>😂<sub>😂</sub>😂</sub>😂<sup>😂<sup>😂</sup>😂</sup>😂<sub>😂<sub>😂</sub>😂</sub>😂<sup>😂<sup>😂</sup>😂</sup>
 <!--
 **hngskj/hngskj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
